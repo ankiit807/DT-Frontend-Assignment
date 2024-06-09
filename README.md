@@ -1,1 +1,2 @@
 # DT-Frontend-Assignment
+Hope this assignment finds you well. I'm writing to follow up on the assignment I recently submitted. I'm eager to hear your feedback and thoughts on my contribution. Please let me know if there are any additional details or clarifications you require. I'm fully available to discuss any aspects of the assignment further. Thank you once again for the opportunity. Looking forward to your response.
